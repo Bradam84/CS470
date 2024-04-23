@@ -1,3 +1,3 @@
-Bradley Goerke
-04/22/2024
-https://youtu.be/YO0MRdAT1XU
+Bradley Goerke \n
+04/22/2024 \n
+https://youtu.be/YO0MRdAT1XU \n
